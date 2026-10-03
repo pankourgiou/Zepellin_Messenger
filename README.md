@@ -1,0 +1,2 @@
+Download the .html and double click it and voila! the Zepellin Messenger is working. 3 options for 3 different types of Zepellin + night/bad weather ooptions +250words capability for writing a poem or a little message on the Zepellin or right below.
+it's funny but we could still use them to carry a message for real or for Marketing reasons...doesn't even need Helium-->you have a drone 100$ a ballon with air..and the commercial is up in the sky. anyway enjoy!
